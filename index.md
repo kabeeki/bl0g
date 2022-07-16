@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Hey! 
 
-Maybe say a some things about yourself.
+I'm Kabeeki, I write simple, informative blogs about tech.
 
-Or maybe what you plan to blog about.
+Look below for some extras.
